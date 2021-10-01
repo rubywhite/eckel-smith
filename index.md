@@ -8,4 +8,6 @@ The land was purchased from Colonel Fletcher and divided into four lots, The spe
 
 ### 
 
-On July 6, 1959, at 2:45am, Maurice's convertible hit a post near Highwhay-80 (now Interstate 8) and College leaving 
+On July 6, 1959, at 2:45am, Maurice's convertible hit a post near Highwhay-80 (now Interstate 8) and College. His widow  
+
+![House](https://github.com/rubywhite/eckel-smith/blob/gh-pages/assets/images/7521155-1187694454-1624669192.jpg)

@@ -8,6 +8,6 @@ The land was purchased from Colonel Fletcher and divided into four lots, The spe
 
 ### 
 
-On July 6, 1959, at 2:45am, Maurice's convertible hit a post near Highwhay-80 (now Interstate 8) and College. His widow  
+On July 6, 1963, at 2:45am, Maurice's convertible hit a post near Highwhay-80 (now Interstate 8) and College. His widow traded the house to Robert K. Castetter, who later became the founding Dean of California Western School of Law. The Castetters lived in the house for the next 58 years, until 2021 when after the demise of Marjorie Castetter, Robert's widow her children sold the house to John Loughlin.
 
 ![House](https://github.com/rubywhite/eckel-smith/blob/gh-pages/assets/images/7521155-1187694454-1624669192.jpg)
